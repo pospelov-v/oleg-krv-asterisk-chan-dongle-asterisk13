@@ -1,0 +1,1 @@
+# oleg-krv-asterisk-chan-dongle-asterisk13
